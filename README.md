@@ -1,3 +1,2 @@
 # SWP1
-hhhh
-kkkk
+Name: SULAYMONOV NOSIRKHUJA
